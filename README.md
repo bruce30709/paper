@@ -11,10 +11,10 @@ https://hackmd.io/@bruce30709/BkvEGzisw
 https://hackmd.io/@bruce30709/HymCHooWu
 
 2021/05/13 
-https://hackmd.io/@bruce30709/ry79A0Dw\_
+https://hackmd.io/@bruce30709/ry79A0Dw
 
 2021/08/13 
-https://hackmd.io/@bruce30709/S1LmoJin\_
+https://hackmd.io/@bruce30709/S1LmoJin
 
 2021/10/12
 https://hackmd.io/@bruce30709/H1n67_oet
