@@ -1,6 +1,9 @@
 ###### tags: `paper`
 # paper
 ## note of meeting presentation
+The link of all presentation slides
+https://drive.google.com/drive/folders/1cCtrr8j3QuvyBhIkkK5uSbwsi0yHCB0J?usp=drive_link  
+
 2020/11/05 
 https://hackmd.io/@bruce30709/S1FdRYzuD
 
